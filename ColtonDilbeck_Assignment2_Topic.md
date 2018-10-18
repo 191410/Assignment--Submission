@@ -1,3 +1,17 @@
-# Organic Farming
+# Fishing on Different Lakes in Missouri and Oklahoma
 
-This topic is very controversial. My auidence would be people concerned with their health. People that want more information on what they are eating and more about how it is produced. So, I thought that I could do my educational/informational blog post first. Then for the second blog post, I could discuss the use of herbicides and insecticides. So, the blog will give some additional information about the production side of agriculture.
+Blog Post !
+
+Fishing On Table Rock Lake
+
+Blogs Post 2
+
+Fishing On Stockton Lake
+
+Blog post 3
+
+Fishing on lake of the Ozarks
+
+Blog post 4
+
+Fishing on lake 
